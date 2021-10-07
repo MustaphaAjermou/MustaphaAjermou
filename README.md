@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @MustaphaAjermou
+- 👀 I’m interested in AI and new technologies.
